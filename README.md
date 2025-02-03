@@ -3,4 +3,4 @@
 <p align="center"><img src="https://i.imgur.com/x8FfmWu.gif"> She/It <i>only</i>, femme lesbian, adult </p>
 <p align="center"><img src="https://i.imgur.com/L77lGvt.gif"> <i>Whisper</i> to interact, I am usually off-tab</p>
 <p align="center"><img src="https://i.imgur.com/gKgcdXw.gif"> Often sitting with friends & loved ones</p>
-<p align="center"><img src="https://i.imgur.com/DpLke20.gif"> I hope you find something to smile about today</p>
+<p align="center"><img src="https://i.imgur.com/DpLke20.gif"> You will typically find me haunting the docks</p>
